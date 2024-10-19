@@ -1,3 +1,5 @@
+Welcome on Official FreeBankCoin (EBANK) github page!
+
 Visit this page each time to discover official projects from the digital and decentralized platform: FreeBankCoin, EBANK. Projects that do not appear on the list below are not official projects for FreeBankCoin. Here are our official projects, they will be updated each time:
 
 
