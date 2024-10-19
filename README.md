@@ -21,7 +21,7 @@ https://t.me/freebankcoin_bot
 *********************
 *********************
 
-ADS :
+Mini ADS :
 
 👉Discover the MeMeLand project: https://t.me/metaland_bot/click?startapp=6611303706 With new Web3.0 features with great potential.
 
@@ -29,7 +29,8 @@ ADS :
 *************************
         📋💬📋
 The official Note:
-We can say that we are the first global digital platform and the first most popular project on the planet and the universe to have introduced for the first time the concept "Double to earn Double" or "Hold to earn More" in the Web2.0 and Web3.0 sector.
+*****************
+                 We can say that we are the first global digital platform and the first most popular project on the planet and the universe to have introduced for the first time the concept "Double to earn Double" or "Hold to earn More" in the Web2.0 and Web3.0 sector.
 
 In the near future, Internet users will come to understand and deeply embrace this concept or mechanism.
 
