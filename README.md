@@ -1,3 +1,7 @@
+Visit this page each time to discover official projects from the digital and decentralized platform: FreeBankCoin, EBANK. Projects that do not appear on the list below are not official projects for FreeBankCoin. Here are our official projects, they will be updated each time:
+
+
+
 We can say that we are the first global digital platform and the first most popular project on the planet and the universe to have introduced for the first time the concept "Double to earn Double" or "Hold to earn More" in the Web2.0 and Web3.0 sector.
 
 In the near future, Internet users will come to understand and deeply embrace this concept or mechanism.
