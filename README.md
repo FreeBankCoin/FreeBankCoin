@@ -1,13 +1,20 @@
 Welcome on Official FreeBankCoin ($EBANK) github page!
 ***********************
 
+         💎
+Visit this page each time to discover official projects from the digital and decentralized platform: FreeBankCoin, $EBANK. 
 
-Visit this page each time to discover official projects from the digital and decentralized platform: FreeBankCoin, EBANK. Projects that do not appear on the list below are not official projects for FreeBankCoin. Here are our official projects, they will be updated each time:
-*************************
+Projects that do not appear on the list below are not official projects for FreeBankCoin.
+Here are our official projects, they will be updated each time:
+
+        📝📋📈
+        
 1. Telegram mini App :
   https://t.me/freebankcoin_bot
 
 On this platform, every movement is rewarded, every action, every gesture, opinion, accomplishment of missions, publication of an idea or intellectual contribution, participation is rewarded. It’s time to easily accumulate digital assets. Become the manager of one or more electronic banks by accumulating FreeBankCoin ($EBANK)🚀
+Start and follow :
+https://t.me/freebankcoin_bot
 ***************************
            ⚡
 2. Coming soon...
