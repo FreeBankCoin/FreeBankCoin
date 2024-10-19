@@ -21,7 +21,7 @@ https://t.me/freebankcoin_bot
 *********************
 *********************
 
-Mini ADS :
+Mini projects:
 
 👉Discover the MeMeLand project: https://t.me/metaland_bot/click?startapp=6611303706 With new Web3.0 features with great potential.
 
